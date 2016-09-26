@@ -1,0 +1,1 @@
+all our love has slipped between the coarse stone of edinburghs granite castle and hedgeways...but granite is the mightiest of the stones..is it?
